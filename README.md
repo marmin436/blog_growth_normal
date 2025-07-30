@@ -1,0 +1,1 @@
+# blog_growth_normal
